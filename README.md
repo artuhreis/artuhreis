@@ -1,4 +1,4 @@
-## Artur Reis 🎮
+## Artur Reis 👨🏾‍💻🎮
 
  <div>
    <a href="https://github.com/artuhreis">
